@@ -1,1 +1,0 @@
-Andrewnazeh-Portfolio/preview.png
