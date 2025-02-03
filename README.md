@@ -1,1 +1,1 @@
-preview.png
+Andrewnazeh-Portfolio/preview.png
